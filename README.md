@@ -1,4 +1,4 @@
-I'm Casey! I'm a 24 year old trans girl from Queensland, Australia.
+I'm Casey! I'm a 27 year old trans girl from Queensland, Australia.
 
 My main interests are:
 
